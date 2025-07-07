@@ -30,4 +30,4 @@
 结语
 总之，日本AV免费的资源不再难以获得。通过以上推荐的平台，你可以在不花费任何费用的情况下，轻松观看到最新、高清的日本成人视频。快来享受这些平台提供的丰富视频内容吧，开启你的无忧观看之旅。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hjl678/68452 ）</span>
